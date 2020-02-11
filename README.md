@@ -113,5 +113,7 @@ I dropped out onto the road knowing there was 55km to go. I stopped to fill bott
 I rolled into the finish after 4 days 11 hours and 13 minutes. For what it's worth a top 10 finish. Job done. Over the next hours and days I caught up with riders I’d seen en route. Some I'd briefly at the start or within the first neutralised 10km and others I’d seen near every checkpoint. Everyone had a tale to tell. We’d each entered the same race yet each completed such a different one.
 ![desc](/img/racearoundrwanda-59.jpg)
 ![desc](/img/racearoundrwanda-60.jpg)
+I'll update this page shortly with details of my bike setup and kit. I found it useful to look what others have done in the past when researching my first ultra-distance race and my experience may prove useful to others.
+
 There's more details about the race at [racearoundrwanda.com](https://www.racearoundrwanda.com). If you've questions about taking place in a future edition, I'm happy to offer advice. Get in touch via [pete@hypertelia.com](mailto:pete@hypertelia.com) or [@peteaylward on Twitter](https://www.twitter.com/peteaylward).
 
