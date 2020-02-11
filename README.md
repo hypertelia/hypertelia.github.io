@@ -1,5 +1,3 @@
-## #RaR01
-
 ![desc](/img/racearoundrwanda-1.jpg)
 It’s 3:30am on Sunday 2nd February 2019 and there are 60 or so cyclists milling about the reception area of the Onomo hotel in Kigali, the capital of Rwanda, drinking coffee and nibbling at pastries, some lost in their own thoughts but many others introducing themselves to evidently like-minded individuals. “Have you done anything like this before?” …“Have you visited Africa before?” …“Did you sleep?” … “Have you managed to eat breakfast?” … in my case, that’s a no, no, no, and just about.
 
