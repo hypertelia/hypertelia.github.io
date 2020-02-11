@@ -1,10 +1,7 @@
 ## #RaR01
 
-![First Image](/img/racearoundrwanda-1.jpg)
-
 ![desc](/img/racearoundrwanda-1.jpg)
 It’s 3:30am and there are 60 or so cyclists milling about the reception area of the Onomo hotel in Kigali, the capital of Rwanda, drinking coffee and nibbling at pastries, some lost in their own thoughts but many others introducing themselves to evidently like-minded individuals. “Have you done anything like this before?” …“Have you visited Africa before?” …“Did you sleep?” … “Have you managed to eat breakfast?” … in my case, that’s a no, no, no, and just about.
-![desc](/img/racearoundrwanda-1.jpg)
 Riders begin to gather around the start line shortly after 4:00am as others are still tinkering with their bikes. Adding a few more PSI to their tyres, attaching and reattaching bike bags, and double and triple checking contents. Comparisons are being made. “How have you managed to get all you need into that tiny seat pack?” … “What tyres are you riding?” … “Dyno-hub or powerbank?” Common questions being asked and the varying answers given become a theme during the race. We’re all here to do the same thing, but doing it each in our own way. 
 ![desc](/img/racearoundrwanda-2.jpg)
 With 15 minutes till the off, everyone is now at the start area and there’s a final race briefing. We’re to roll out with a police outrider offering an escort through the first and neutralised 10km of our near 1000km ride before switching off its flashing lights and leaving us to ride on. 
