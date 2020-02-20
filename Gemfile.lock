@@ -350,7 +350,6 @@ PLATFORMS
 DEPENDENCIES
   github-pages (~> 204)
   jekyll
-  jekyll-theme-tactile
   rails
 
 BUNDLED WITH
