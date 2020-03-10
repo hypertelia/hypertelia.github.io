@@ -8,12 +8,12 @@ tags: [review]
 summary: 
 ---
 
-With Race around Rwanda being my first ultra-distance event, I'm sure I was no different to many first-timers in scouring the web for information on what more experienced racers carry with them for such races. So, with the wisdom that comes from my solitary finish, it's time to reciprocate …
+With Race around Rwanda being my first ultra-distance event, I'm sure I was no different to many first-timers in scouring the web for information on what more experienced racers carry with them for such races. So, with the wisdom that comes from a single solitary finish, it's time to reciprocate …
 
 ![bike stood by side of the road](/img/racearoundrwanda-bike.jpg)
 
 ## Luggage ##
-In keeping with trying to do things on the cheap, I used a set of Planet X bike packing bags: A seat pack, frame bag, and top tube bag, paying less than £35 for the lot when they were on sale (I think they're always on sale). 
+In keeping with trying to [do things on the cheap](/race-around-rwanda-the-bike), I used a set of Planet X bike packing bags: A seat pack, frame bag, and top tube bag, paying less than £35 for the lot when they were on sale (I think they're always on sale). 
 - In the **seat pack** I kept anything I didn't think I'd need while riding, unless things took a proper turn for the worse.  
 - The **frame bag** was used for waterproof jacket and gilet, arm warmers, pump, multi tool, powerbank—the items I was more likely to need between checkpoints or stops.
 - The **toptube bag** was used for food and phone.
