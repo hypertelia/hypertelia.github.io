@@ -6,6 +6,7 @@ category: [cycling,race,ultra-endurance]
 author: 
 tags: [review]
 summary: 
+description: Kit used for the Race Around Rwanda self-supported single stage bikepacking event
 ---
 
 With Race around Rwanda being my first ultra-distance event, I'm sure I was no different to many first-timers in scouring the web for information on what more experienced racers carry with them for such races. So, with the wisdom that comes from a single solitary finish, it's time to reciprocate …

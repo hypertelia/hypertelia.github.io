@@ -6,6 +6,7 @@ category: [cycling,race,ultra-endurance]
 author: 
 tags: [report]
 summary: 
+description: Race report of the inaugural Race Around Rwanda, a 1000km self-supported single stage bikepacking race
 ---
 
 ![desc](/img/racearoundrwanda-1.jpg)

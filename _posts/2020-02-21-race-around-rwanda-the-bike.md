@@ -6,6 +6,7 @@ category: [cycling,race,ultra-endurance]
 author: 
 tags: [review]
 summary: 
+description: Details of the bike used for the Race Around Rwanda, a self-supported single stage bikepacking event
 ---
 
 Through necessity and as a matter of principle, I wanted to keep my whole Rwandan adventure as cheap as possible. This meant building up a bike largely from parts in the bike shed, then scouring 'fleaBay' and the sales for bargains where I needed to buy something new.
