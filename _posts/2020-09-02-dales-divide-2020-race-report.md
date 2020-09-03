@@ -90,11 +90,15 @@ The final fell proper had us riding into the sunset towards Dentdale. We'd seen 
 
 We drove each other on, passing another rider a few KM from the finish and finally rolling onto the Jetty just after 11.30pm: I actually overshot the turn onto the jetty, with Harry beating me fair and square to the finish, despite what the official tracking says! 
 
-So job done, 600 mainly offroad kilomeres in 60ish hours, including rests and stops. It was far tougher than I'd expected but a proper experience, and plenty of good memories to counter any pain or misery felt at the time. Riding with Harry was a pleasure. He's a top bloke with experiences, ambition and drive that belies his relatively young age—I'm easily old enough to be his dad! Check out his range of <a href="https://www.spokeduk.com">bikepacking bags at SpokedUK</a>.
+So job done, 600 mainly off-road kilometers in 60ish hours, including rests and stops. It was far tougher than I'd expected but a proper experience, and plenty of good memories to counter any pain or misery felt at the time. Riding with Harry was a pleasure. He's a top bloke with experiences, ambition and drive that belies his relatively young age—I'm easily old enough to be his dad! Check out his range of <a href="https://www.spokeduk.com">bikepacking bags at SpokedUK</a>.
+
+<iframe height='405' width='590' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3993721716/embed/f5dec7bd7b7eba13df700533b9f362574a368398' style ="display:block; margin: 0 auto;"></iframe>
 
 'Bike' and 'kit' posts to follow shortly. Errors in recollection of what actually occurred during the race cannot be ruled out!
 
 ![desc](/img/dd/dd2020-25.jpg)
+
+
 
 
 
