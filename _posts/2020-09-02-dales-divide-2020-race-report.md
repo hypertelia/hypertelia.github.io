@@ -10,7 +10,7 @@ description: Report of the 2020 Dales Divide Bikepacking Race
 ---
 
 ![desc](/img/dd/dd2020-1.jpg)
-I'd been looking for another bikepacking race to take part in since Race Around Rwanda and the <a href="https://bikepacking.com/event/dales-divide-2020/">Dales Divide</a>, due to take place over the Easter weekend looked perfectly timed. Long enough away to recover, but soon enough to carry some fitness through. It also started and finished in Arnside, less than 20km from my home,negating the need to make any travel arrangements. COVID-19 screwed up that plan and I'd not really thought much more about it until seeing it re-listed on <a href="https://dotwatcher.cc/race/dales-divide-2020">dotwatcher.cc</a> early in August. So, with very little training and very little time to rectify that, I decided to enter anyway. What's the worst that could happen?
+I'd been looking for another bikepacking race to take part in since Race Around Rwanda and the <a href="https://bikepacking.com/event/dales-divide-2020/">Dales Divide</a>, due to take place over the Easter weekend looked perfectly timed. Long enough away to recover, but soon enough to carry some fitness through. It also started and finished in Arnside, less than 20km from my home, negating the need to make any travel arrangements. COVID-19 screwed up that plan and I'd not really thought much more about it until seeing it re-listed on <a href="https://dotwatcher.cc/race/dales-divide-2020">dotwatcher.cc</a> early in August. So, with very little training and very little time to rectify that, I decided to enter anyway. What's the worst that could happen?
 
 As a lockdown project, I'd build up a new bike which having read a few recce reports of the Dales Divide route seemed like it would be a better choice than my <a href="/race-around-rwanda-the-bike">Fugio</a>. This one, a Bombtrack EXT, will take up to a 53mm width tyre, which seemed like a wise move. It was on this recently completed 'parts bin special' that I rocked up to Arnside with 10 or so minutes till the off.
 
@@ -92,7 +92,9 @@ We drove each other on, passing another rider a few KM from the finish and final
 
 So job done, 600 mainly offroad kilomeres in 60ish hours, including rests and stops. It was far tougher than I'd expected but a proper experience, and plenty of good memories to counter any pain or misery felt at the time. Riding with Harry was a pleasure. He's a top bloke with experiences, ambition and drive that belies his relatively young age—I'm easily old enough to be his dad! Check out his range of <a href="https://www.spokeduk.com">bikepacking bags at SpokedUK</a>.
 
-'Bike' and 'kit' posts to follow shortly.
+'Bike' and 'kit' posts to follow shortly. Errors in recollection of what actually occurred during the race cannot be ruled out!
 
 ![desc](/img/dd/dd2020-25.jpg)
+
+
 
