@@ -350,6 +350,7 @@ PLATFORMS
 DEPENDENCIES
   github-pages (~> 204)
   jekyll
+  jekyll-seo-tag
   rails
 
 BUNDLED WITH
