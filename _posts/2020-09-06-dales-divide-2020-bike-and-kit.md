@@ -10,7 +10,7 @@ summary: Overview of bike choice and kit selection for Dales Divide bikepacking 
 
 As with my <a href="/race-around-rwanda-the-bike">bike for Race Around Rwanda</a> I built up a bike suitable for the Dales Divide on the cheap, fitting parts I had already lying around to a used frame and forks picked up cheap in the classifieds forums.
 
-![Bombtrack Hook EXT](/img/dd/dd2020-27.jpg)
+![Bombtrack Hook EXT](/img/dd/dd2020-28.jpg)
 
 **Frameset**
 : I knew I'd <del>need</del> <ins>want</ins> fatter tyres than any of my bike, save for my mountain bike could run and had picked up a suitable frameset as the basis for a replacement winter bike build I had in mind. The Bombtrack Hook EXT can handle a 27.5 x 2.1 tyre (650b x 53mm in new money), and has _all_ the mounts. 
