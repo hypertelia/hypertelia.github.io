@@ -32,7 +32,7 @@ As with my <a href="/race-around-rwanda-the-bike">bike for Race Around Rwanda</a
 : Saddle was my old Brooks B17 Narrow. I gave the tensioning bolt a turn the day before the race, and what had previously been a perfect saddle creaked like anything for the first few hundred km until I grabbed a couple of drops of lube from a bike shop to silence it. 
 
 **Bags**
-: I used my old Planet X seat and frame/top tube packs. As mentioned in my Race around Rwanda posts these do the job in unspectacular fashion. Up front though I now had the option to add a couple of fork bags so went for Salsa Anything Cage HDs with matching drybags. I also added a Aguille Alpine handlebar bag which is really nice. I may invest in more of their kit. Watch this space …
+: I used my old Planet X Podsacs seat and frame/top tube packs. As mentioned in my Race around Rwanda posts these do the job in unspectacular fashion. Up front though I now had the option to add a couple of fork bags so went for Salsa Anything Cage HDs with matching drybags. I also added a Aguille Alpine handlebar bag which is really nice. I may invest in more of their kit. Watch this space …
 
 ![Bike leant up against fence](/img/dd/dd2020-22.jpg)
 
