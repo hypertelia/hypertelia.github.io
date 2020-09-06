@@ -2,7 +2,7 @@
 layout: post
 title: Dales Divide 2020 Race Report
 date: 2020-09-02 20:02
-category: [cycling,race,ultra-endurance]
+category: [cycling,race,ultra-endurance,bikepacking]
 author: 
 tags: [review]
 summary:
