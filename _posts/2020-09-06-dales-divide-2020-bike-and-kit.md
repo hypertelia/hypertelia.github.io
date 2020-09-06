@@ -7,6 +7,7 @@ author:
 tags: []
 summary: Overview of bike choice and kit selection for Dales Divide bikepacking race
 ---
+
 As with my <a href="/race-around-rwanda-the-bike">bike for Race Around Rwanda</a> I built up a bike suitable for the Dales Divide on the cheap, fitting parts I had already lying around to a used frame and forks picked up cheap in the classifieds forums.
 
 ![Bombtrack Hook EXT](/img/dd/dd2020-27.jpg)
@@ -36,9 +37,7 @@ As with my <a href="/race-around-rwanda-the-bike">bike for Race Around Rwanda</a
 
 **Kit and Packing**
 : I used a Snugpak Stratoshere hooped bivvy/one person tent which fitted perfectly into a fork bag, and a Snugpak sleeping bag nicely filled the seatpack with room to carry a full change of clothes. The other fork bag was used mainly for spares, with the frame/handlebar bags used for tools and batteries, plus snacks The move to thru-axles meant that I no longer had a dynohub to use, so took a Hope R4+ light with a 4 and 2 cell battery. I didn't need to use the 2 cell one, running the light on the lowest settings whenever I could. I drained a powerbank keeping Wahoo GPS and Phone topped up.
-
 : Clothing-wise I had a long and short sleeved Kendal Cycle Club jersey and windstopper gillet, OMM waterproof jacket (not cycling specific but a little more substantial that my rain capes), old and comfy Assos bib shorts, then spare Castelli nano-flex ones, together with nano-flex arm and leg warmers. This meant I could layer things up if need be. I took a primaloft gillet for if I needed some insulation off the bike. The best clothing investment I made was in some Dexshell Waterproof Ultra Thin socks. These worked a treat keeping my feet warm and dry. 
-
 : I'm sure I could pack lighter if I really tried (or spent ££) but everything worked ok, and save for essential spares such as tubes and cables, I used everything I was carrying. I will though invest in as small and lightweight a sleeping pad as I can afford at some point as being able to sleep better than I managed on cold ground is vital. 
 
 ![Bombtrack Hook EXT](/img/dd/dd2020-26.jpg)
