@@ -8,7 +8,7 @@ tags: []
 summary: A warning about using the Salsa Anything Cage HD with carbon forks
 ---
 
-My latest bike build, based around a <a href="/dales-divide-2020-bike-and-kit/">Bombtrack Hook EXT</a>, permitted me to use fork mounted cages for the first time. I liked the idea of keeping weight lower down than a bar roll, so purchased a couple of Salsa Cycle's Anything Cage HD with matching Anything Bags. I used this set-up 'in anger' for the first time riding the <a href="dales-divide-2020-race-report">Dales Divide</a>, using one rack for my bivvy tent, and the other for a few spares plus food and arm/leg warmers. They have been used for ~900km of riding, they fulfilled their function , however …
+My latest bike build, based around a <a href="/dales-divide-2020-bike-and-kit/">Bombtrack Hook EXT</a>, permitted me to use fork mounted cages for the first time. I liked the idea of keeping weight lower down than a bar roll, so purchased a couple of Salsa Cycle's Anything Cage HD with matching Anything Bags. I used this set-up 'in anger' for the first time riding the <a href="dales-divide-2020-race-report">Dales Divide</a>, using one rack for my bivvy tent, and the other for a few spares plus food and arm/leg warmers. They have been used for ~900km of riding, they fulfilled their primary function, however …
 
 On removing the cages I am furious to find the damage that they have done to the forks as shown in the images below. 
 
