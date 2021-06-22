@@ -41,7 +41,7 @@ The track climbed upwards until reaching open moorland. This was barely rideable
 
 ![desc](/img/sc/stone-circles-7.jpg)
 
-I descended from the fells towards Newbiggin where the route crossed a river and headed along the England Coastal Path north. Or rather than was the route's intention. In my haste to create a route, I hadn't noticed that what looked like a bridge was in fact a tidal ford running along side a railway bridge. A bird watcher told me it would be passable in 5 hours or so. I turned back and road off route in land for a while, crossing the River Esk before rejoining the route proper at Ravenglass. 
+I descended from the fells towards Newbiggin where the route crossed a river and headed along the England Coastal Path north. Or rather than was the route's intention. In my haste to create a route, I hadn't noticed that what looked like a bridge was in fact a tidal ford running along side a railway bridge. A bird watcher told me it would be passable in 5 hours or so. I turned back and road off route in land for a while, stopping to have a coffee and bargain reduced punnet of strawberries from a Spar, before crossing the River Esk and rejoining the route proper at Ravenglass. 
 
 ![desc](/img/sc/stone-circles-8.jpg)
 
@@ -53,9 +53,15 @@ Two more 'fails' followed. Crossing Cold Fell I knew there was a circle somewher
 
 ![desc](/img/sc/stone-circles-10.jpg)
 
-… as does 
+… as does Elva Plain. I'd noticed that this one was off to the side of my route with no obvious public access, but had hoped it was visible from the road. I stopped where it would have been visible had the lay of the land been favourable, but it was out of sight, I believe just over the brow of a hill.
+
 ![desc](/img/sc/stone-circles-11.jpg)
+
+I looped up around Bassenthwaite Lake and now needed to head into civilisation: Keswick. I dropped off the Threlkeld cycle path to grab some food for now and for later on, and replenish my water bottles. And then rode onwards and up to Castlerigg. I knew this was the most touristy of the circles, and it was heaving. The roads around the place were packed with cars, and the stones themselves busy with picnickers and a fair few pissed up partiers, perhaps there since sunrise?
+
 ![desc](/img/sc/stone-circles-12.jpg)
+
+
 ![desc](/img/sc/stone-circles-13.jpg)
 ![desc](/img/sc/stone-circles-14.jpg)
 ![desc](/img/sc/stone-circles-15.jpg)
