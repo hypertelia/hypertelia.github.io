@@ -45,9 +45,15 @@ I descended from the fells towards Newbiggin where the route crossed a river and
 
 ![desc](/img/sc/stone-circles-8.jpg)
 
+North of Seascale I'd taken a bridleway that I'd hoped would give me a view of a stone circle just south of Sellafield. I rode looking over the hedgerow but it wasn't to be seen. I rejoined the road, and asked a dog walker if she knew where it was. She explained that it was tricky to get near to, and with signs warning of armed police I thought I'd let this one go.
 
 ![desc](/img/sc/stone-circles-9.jpg)
+
+Two more 'fails' followed. Crossing Cold Fell I knew there was a circle somewhere along the way, but plain didn't see it. I'm not sure if it was obscured by bracken or I just wasn't looking the right way at the right moment, but Blakeley Raise remains unseen … 
+
 ![desc](/img/sc/stone-circles-10.jpg)
+
+… as does 
 ![desc](/img/sc/stone-circles-11.jpg)
 ![desc](/img/sc/stone-circles-12.jpg)
 ![desc](/img/sc/stone-circles-13.jpg)
