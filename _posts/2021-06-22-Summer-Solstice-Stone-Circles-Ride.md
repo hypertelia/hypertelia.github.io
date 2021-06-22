@@ -9,21 +9,17 @@ tags: []
 summary: Sunrise to sunset ride on the Summer Solstice around Cumbria's Stone Circles
 ---
 
-I've been struggling with the COVID-19 post-lockdown situation and yet feeling fully comfortable getting involved with organised activities. I've been riding a bit but without any real focus, literally just keeping my legs turning over. From experience, I know that if I go public with an idea, then I'll make it happen. I've had the notion of riding all day on the longest day for a while now, so decided to do something about it, albeit a little late in the day. Mid-June I realised we were a week away from Summer Solstice so, I booked the day off work and told people I was going for an all-day ride. JFDI. But JFD What? 
+I don't think I'm alone in suffering from post-lockdown lethargy. I needed to force myself to get out and do a 'proper ride' as I've been largely idle since last year. From experience, I know that if I go public with an idea, then I'll make it happen. I've had the notion of riding all day on the longest day for a while now, so decided to do something about it, albeit a little late in the day. Mid-June I realised we were a week away from Summer Solstice so, I booked the day off work and told people I was going for an all-day ride. JFDI. But JFD What? 
 
 I messed around with <a href="http://cycle.travel">Cycle.Travel</a> coming up with random routes that looked about a day's ride, but they lacked focus or 'purpose'. I then found myself reading an article about Cumbria's stone circles and, with a train of thought along the lines of stone circle -> Stone Henge -> Summer Soltice I realised that a route joining up selection of Cumbria's stone circles was perfect. A few clicks later and I had a 270km route good to go, with 10 or so circles to visit. My intention wasn't to race this, but rather to make it last from 4:38am to 9:51pm, sunrise to sunset on the longest day. The distance seemed about right for the purpose.
 
 ![desc](/img/sc/stone-circles-1.jpg)
 
-**4:38am**
+I'd set up my bike the evening before so I could just dress and go at sunrise. Leaving quietly is tricky with a Hope Pro 4 hub, so I carried my bike to the road then started peddling right away to avoid the tell tale CLICK CLICK CLICK: too early to wake the neighbours with that. 4:38am and I was off.
 
-I'd set up my bike the evening before so I could just dress and go at sunrise. Leaving quietly is tricky with a Hope Pro 4 hub, so I carried my bike to the road then started peddling right away to avoid the tell tale CLICK CLICK CLICK: too early to wake the neighbours with that.
-
-It was light from the off. I knew I was heading towards Ulverston but hadn't really paid much attention to the route that had been created. It was 'the usual' Oxenholme, Natland, Sedgewick route so I could ride on autopilot enjoying the peaceful start to the day. I stopped and looked back towards Levens where the sun was breaking through the clouds.
+I knew I was heading towards Ulverston but hadn't really paid much attention to the route that had been created. It was 'the usual' Oxenholme, Natland, Sedgewick route so I could ride on autopilot enjoying the peaceful start to the day. It had been light from the off but I stopped and looked back towards Levens where the sun was breaking through the clouds. 
 
 ![desc](/img/sc/stone-circles-2.jpg)
-
-**The Druid’s Circle – Birkrigg Common**
 
 Passing through Ulverstone and heading south I climbed up onto Birkrigg Common and then descended back towards the coast at Bardsea. My GPS beeped as I picked up speed, as I'd shot passed the grassy track that led down to the stones. I climbed back up then rode down to the stones. There were a couple sat there talking about the power of crystals. I don't think you could have come up with a more new age hippy-like scenario. Perfect for the day. I took a snap then descended on a gravel track back to the road and headed north west.
 
