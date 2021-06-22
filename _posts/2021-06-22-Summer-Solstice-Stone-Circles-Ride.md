@@ -70,9 +70,18 @@ Through Pooley Bridge and up off-road to Moor Divock. The sun had finally fully 
 
 Having enjoyed the descent from Askham Fell I made steady if not rapid progress over towards Shap. Hills were becoming increasingly hard to climb as fatigue took hold.
 
-![desc](/img/sc/stone-circles-15.jpg)
+I passed over the main road through Shap and climbed up over railway, the M6 and beyond. I'd added a little loop to what would have been an out and back to the next circle, but couldn't recall where on that loop the circle was. Just as was about to retrace my route I spotted it, perhaps the least impressive of the day, and in a field without access. Still, it was downhill back into Shap now, and my route was heading south, which meant the homeward bound.
+
 ![desc](/img/sc/stone-circles-16.jpg)
+
+The next stone circle was one I knew about and had passed many times without ever stopping. It's actually only half a circle as the west coast mainline train tracks obliterated it way back when. I ducked into the field to take some snaps then pushed on towards Orton. 
+
 ![desc](/img/sc/stone-circles-17.jpg)
+
+The final circle of my route was the only one I'd visited previously, just a few weeks ago when popping out to catch Damian Hall on his successful Wainright's Coast to Coast FKT run.
+
+Rolling towards Gamelands stone circle, I finally paid attention to the time. It was approaching 8:30pm which boded well for being home for sunset. The sun was dropping and the buttercups filling the meadow the circle sits in glowed in the evening light. I leant up against the largest stone, which was warmed by the day's sunshine and treated myself to the pork pie and chocolate I'd carried since Keswick. 
+
 ![desc](/img/sc/stone-circles-18.jpg)
 ![desc](/img/sc/stone-circles-19.jpg)
 ![desc](/img/sc/stone-circles-20.jpg)
