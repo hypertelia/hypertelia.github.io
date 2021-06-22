@@ -63,10 +63,13 @@ I looped up around Bassenthwaite Lake and now needed to head into civilisation: 
 
 From Keswick I headed east on the dedicated cycle path past Thelkeld before dropping down to Ullswater. The wind had been blowing quite strongly all day from the north east and with the constant headwind and 180km or so in my legs I was starting to struggle. I dropped down the gears and just kept rolling along trying to keep cadence up and legs loose. Again, this wasn't a race so it didn't matter how slowly I rode.
 
-Through Pooley Bridge and up onto Moor Divock. The sun had finally fully broken through the clouds and it was turning into a glorious evening. I stopped at two circles up here. The cockpit 
+Through Pooley Bridge and up off-road to Moor Divock. The sun had finally fully broken through the clouds and it was turning into a glorious evening. I stopped at two circles up here. The Cockpit and a smaller one. I believe there are a handful of other circles up here and were it not for needing to push on I've have sought them out. 
 
 ![desc](/img/sc/stone-circles-13.jpg)
 ![desc](/img/sc/stone-circles-14.jpg)
+
+Having enjoyed the descent from Askham Fell I made steady if not rapid progress over towards Shap. Hills were becoming increasingly hard to climb as fatigue took hold.
+
 ![desc](/img/sc/stone-circles-15.jpg)
 ![desc](/img/sc/stone-circles-16.jpg)
 ![desc](/img/sc/stone-circles-17.jpg)
