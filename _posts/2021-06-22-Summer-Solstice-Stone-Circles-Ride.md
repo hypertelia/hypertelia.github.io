@@ -10,7 +10,7 @@ summary: Sunrise to sunset ride on the Summer Solstice around Cumbria's Stone Ci
 
 I've been struggling with the COVID-19 post-lockdown situation and yet feeling fully comfortable getting involved with organised activities. I've been riding a bit but without any real focus, literally just keeping my legs turning over. From experience, I know that if I go public with an idea, then I'll make it happen. I've had the notion of riding all day on the longest day for a while now, so decided to do something about it, albeit a little late in the day. Mid-June I realised we were a week away from Summer Solstice so, I booked the day off work and told people I was going for an all-day ride. JFDI. But JFD What? 
 
-I messed around with <a href="http://cycle.travel">Cycle.Travel</a> coming up with random routes that looked about a day's ride, but they lacked focus or 'purpose'. I then found myself reading an article about Cumbria's stone circles and, with a train of thought along the lines of stone circle -> Stone Henge -> Summer Soltice I realised that a route joining up selection of Cumbria's stone circles was perfect. A few clicks later and I had a 270km route good to go, with 10 or so circles to visit. My intention wasn't to race this, but rather to make it last from 4:38am to 9:51pm, sunrise to sunset on the longest day.
+I messed around with <a href="http://cycle.travel">Cycle.Travel</a> coming up with random routes that looked about a day's ride, but they lacked focus or 'purpose'. I then found myself reading an article about Cumbria's stone circles and, with a train of thought along the lines of stone circle -> Stone Henge -> Summer Soltice I realised that a route joining up selection of Cumbria's stone circles was perfect. A few clicks later and I had a 270km route good to go, with 10 or so circles to visit. My intention wasn't to race this, but rather to make it last from 4:38am to 9:51pm, sunrise to sunset on the longest day. The distance seemed about right for the purpose.
 
 ![desc](/img/sc/stone-circles-1.jpg)
 
@@ -80,8 +80,15 @@ The next stone circle was one I knew about and had passed many times without eve
 
 The final circle of my route was the only one I'd visited previously, just a few weeks ago when popping out to catch Damian Hall on his successful Wainright's Coast to Coast FKT run.
 
-Rolling towards Gamelands stone circle, I finally paid attention to the time. It was approaching 8:30pm which boded well for being home for sunset. The sun was dropping and the buttercups filling the meadow the circle sits in glowed in the evening light. I leant up against the largest stone, which was warmed by the day's sunshine and treated myself to the pork pie and chocolate I'd carried since Keswick. 
+Rolling towards Gamelands stone circle, I finally paid attention to the time. It was approaching 8:30pm which boded well for being home for sunset. The sun was dropping and the buttercups filling the meadow the circle sits in glowed in the evening light. I leant up against the largest stone, which was warmed by the day's sunshine and tucked into a celebratory feast of … 
 
 ![desc](/img/sc/stone-circles-18.jpg)
 ![desc](/img/sc/stone-circles-19.jpg)
+
+… pork pie and chocolate milk that I'd carried since Keswick. I don't think I'm alone in this being a staple post and indeed mid-ride treat, and it tasted great.
+
 ![desc](/img/sc/stone-circles-20.jpg)
+
+Checking the time again I had about an hour to get home. Pretty well timed I thought, albeit through luck rather than design. I jumped back on my bike, bumped along the route's final offroad stretch of track and then took the road round to Tebay before dropping down to Borrowdale. I'd forgotten just how hilly it was between Tebay and home. I was pushing as hard as I could, but every climb became slower and slower. As I climbed up towards the village next to mine, I ran out of time. 9:52pm and the sun had officially set. 10 minutes later and I was home. Tired but pleased with the day's efforts: 8 stone circles visited, ~15 hours ridden, ~270km covered, ~5000m climbed. A good way to spend the solstice
+
+Pick something and JDFI. 
