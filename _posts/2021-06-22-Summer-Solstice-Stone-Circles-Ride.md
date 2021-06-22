@@ -57,10 +57,13 @@ Two more 'fails' followed. Crossing Cold Fell I knew there was a circle somewher
 
 ![desc](/img/sc/stone-circles-11.jpg)
 
-I looped up around Bassenthwaite Lake and now needed to head into civilisation: Keswick. I dropped off the Threlkeld cycle path to grab some food for now and for later on, and replenish my water bottles. And then rode onwards and up to Castlerigg. I knew this was the most touristy of the circles, and it was heaving. The roads around the place were packed with cars, and the stones themselves busy with picnickers and a fair few pissed up partiers, perhaps there since sunrise?
+I looped up around Bassenthwaite Lake and now needed to head into civilisation: Keswick. I dropped off the Threlkeld cycle path to grab some food for now and for later on, and replenish my water bottles. And then rode onwards and up to Castlerigg. I knew this was the most touristy of the circles, and it was heaving. The roads around the place were packed with cars, and the stones themselves busy with picnickers and a fair few pissed-up revellers, perhaps there since sunrise? I kept socially-distanced and then some. Took a snap and moved on. I can see why these stones are popular, but by being popular they also become less appealing.
 
 ![desc](/img/sc/stone-circles-12.jpg)
 
+From Keswick I headed east on the dedicated cycle path past Thelkeld before dropping down to Ullswater. The wind had been blowing quite strongly all day from the north east and with the constant headwind and 180km or so in my legs I was starting to struggle. I dropped down the gears and just kept rolling along trying to keep cadence up and legs loose. Again, this wasn't a race so it didn't matter how slowly I rode.
+
+Through Pooley Bridge and up onto Moor Divock. The sun had finally fully broken through the clouds and it was turning into a glorious evening. I stopped at two circles up here. The cockpit 
 
 ![desc](/img/sc/stone-circles-13.jpg)
 ![desc](/img/sc/stone-circles-14.jpg)
