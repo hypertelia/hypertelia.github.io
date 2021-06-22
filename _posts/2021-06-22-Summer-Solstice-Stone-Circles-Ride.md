@@ -4,7 +4,7 @@ title: JFDI - Summer Solstice Stone Circles Ride
 date: 2021-06-22 09:08
 category: [cycling,route]
 author: Pete Aylward
-image: /img/sc/stone-circles-6.jpg
+image: /img/sc/stone-circles-7.jpg
 tags: []
 summary: Sunrise to sunset ride on the Summer Solstice around Cumbria's Stone Circles
 ---
