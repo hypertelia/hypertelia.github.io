@@ -89,6 +89,8 @@ Rolling towards Gamelands stone circle, I finally paid attention to the time. It
 
 ![desc](/img/sc/stone-circles-20.jpg)
 
-Checking the time again I had about an hour to get home. Pretty well timed I thought, albeit through luck rather than design. I jumped back on my bike, bumped along the route's final offroad stretch of track and then took the road round to Tebay before dropping down to Borrowdale. I'd forgotten just how hilly it was between Tebay and home. I was pushing as hard as I could, but every climb became slower and slower. As I climbed up towards the village next to mine, I ran out of time. 9:52pm and the sun had officially set. 10 minutes later and I was home. Tired but pleased with the day's efforts: 8 stone circles visited, ~15 hours ridden, ~270km covered, ~5000m climbed. A good way to spend the solstice
+Checking the time again I had about an hour to get home. Pretty well timed I thought, albeit through luck rather than design. I jumped back on my bike, bumped along the route's final offroad stretch of track and then took the road round to Tebay before dropping down to Borrowdale. I'd forgotten just how hilly it was between Tebay and home. I was pushing as hard as I could, but every climb became slower and slower. As I climbed up towards the village next to mine, I ran out of time. 9:52pm and the sun had officially set. 10 minutes later and I was home. Tired but pleased with the day's efforts: 8 stone circles visited, ~270km covered, ~5000m climbed. What a way to spend the solstice. 
 
-Pick something and JDFI. 
+JDFI. 
+
+<iframe height='405' width='590' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/5508008595/embed/4b343d9ec5f5ba17962ee03fe201cc737aa2a98d'></iframe>
