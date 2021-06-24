@@ -38,7 +38,7 @@ The track climbed upwards until reaching open moorland. This was barely rideable
 
 ![desc](/img/sc/stone-circles-7.jpg)
 
-I descended from the fells towards Newbiggin where the route crossed a river and headed along the England Coastal Path north. Or rather than was the route's intention. In my haste to create a route, I hadn't noticed that what looked like a bridge was in fact a tidal ford running along side a railway bridge. A bird watcher told me it would be passable in 5 hours or so. I turned back and road off route in land for a while, stopping to have a coffee and bargain reduced punnet of strawberries from a Spar, before crossing the River Esk and rejoining the route proper at Ravenglass. 
+I descended from the fells towards Newbiggin where the route crossed a river and headed along the England Coastal Path north. Or rather than was the route's intention. In my haste to create a route, I hadn't noticed that what looked like a bridge was in fact a tidal ford running along side a railway bridge. A bird watcher told me it would be passable in 5 hours or so. I turned back and rode off route inland for a while, stopping to have a coffee and bargain reduced price punnet of strawberries from a Spar, before crossing the River Esk and rejoining the route proper at Ravenglass. 
 
 ![desc](/img/sc/stone-circles-8.jpg)
 
