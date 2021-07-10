@@ -3,7 +3,8 @@ layout: post
 title: Dales Divide 2020 Bike and Kit
 date: 2020-09-06 11:33
 category: [cycling,race,ultra-endurance, bikepacking]
-author: 
+author: Pete Aylward
+image: /img/dd/dd2020-28.jpg
 tags: []
 summary: Overview of bike choice and kit selection for Dales Divide bikepacking race
 ---
