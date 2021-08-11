@@ -4,8 +4,13 @@ title: You're [not] doing it wrong
 date: 2021-08-10 10:37
 category: 
 author: Pete Aylward
-image: /img/sc/stone-circles-7.jpg
+image: /img/posts/wheels.jpg
 tags: []
-summary: The need to define what's the right and wrong way to ride a bike is tiring 
+summary: There's no real right and wrong in cycling
 ---
 
+![various widths of tyres ]/img/posts/wheels.jpg
+
+**You're [not] doing it wrong**
+
+This week (in August 2021) [Bianchi anncounced new gravel bikes](https://road.cc/content/tech-news/bianchi-reveals-new-impulso-pro-gravel-bike-285501) and most noticeable in reaction was people complaining about the lack of tyre clearance, stating the 38mm maximum to have no place on a gravel bike in 2021. Nonsense I say: You pays your money and you takes your choice. 
