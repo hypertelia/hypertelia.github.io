@@ -15,7 +15,7 @@ I messed around with <a href="http://cycle.travel">Cycle.Travel</a> coming up wi
 
 ![desc](/img/sc/stone-circles-1.jpg)
 
-I'd set up my bike the evening before so I could just dress and go at sunrise. Leaving quietly is tricky with a Hope Pro 4 hub, so I carried my bike to the road then started peddling right away to avoid the tell tale CLICK CLICK CLICK: too early to wake the neighbours with that. 4:38am and I was off.
+I'd set up my bike the evening before so I could just dress and go at sunrise. Leaving quietly is tricky with a Hope Pro 4 hub, so I carried my bike to the road then started pedalling right away to avoid the tell tale CLICK CLICK CLICK: too early to wake the neighbours with that. 4:38am and I was off.
 
 I knew I was heading towards Ulverston but hadn't really paid much attention to the route that had been created. It was 'the usual' Oxenholme, Natland, Sedgewick route so I could ride on autopilot enjoying the peaceful start to the day. It had been light from the off but I stopped and looked back towards Levens where the sun was breaking through the clouds. 
 
