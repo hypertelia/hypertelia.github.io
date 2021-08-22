@@ -21,7 +21,7 @@ I knew I was heading towards Ulverston but hadn't really paid much attention to 
 
 ![desc](/img/sc/stone-circles-2.jpg)
 
-Passing through Ulverstone and heading south I climbed up onto Birkrigg Common and then descended back towards the coast at Bardsea. My GPS beeped as I picked up speed, as I'd shot passed the grassy track that led down to the stones. I climbed back up then rode down to the stones. There were a couple sat there talking about the power of crystals. I don't think you could have come up with a more new age hippy-like scenario. Perfect for the day. I took a snap then descended on a gravel track back to the road and headed north west.
+Passing through Ulverston and heading south I climbed up onto Birkrigg Common and then descended back towards the coast at Bardsea. My GPS beeped as I picked up speed, warning me that I'd shot passed the grassy track that led down to the stones. I climbed back up then rode down to the stones. There were a couple sat there talking about the power of crystals. I don't think you could have come up with a more new age hippy-like scenario. Perfect for the day. I took a snap then descended on a gravel track back to the road and headed north west.
 
 ![desc](/img/sc/stone-circles-3.jpg)
 
@@ -38,7 +38,7 @@ The track climbed upwards until reaching open moorland. This was barely rideable
 
 ![desc](/img/sc/stone-circles-7.jpg)
 
-I descended from the fells towards Newbiggin where the route crossed a river and headed along the England Coastal Path north. Or rather than was the route's intention. In my haste to create a route, I hadn't noticed that what looked like a bridge was in fact a tidal ford running along side a railway bridge. A bird watcher told me it would be passable in 5 hours or so. I turned back and rode off route inland for a while, stopping to have a coffee and bargain reduced price punnet of strawberries from a Spar, before crossing the River Esk and rejoining the route proper at Ravenglass. 
+I descended from the fells towards Newbiggin where the route crossed a river and headed along the England Coastal Path north. Or rather than was the route's intention. In my haste to create a route, I hadn't noticed that what looked like a bridge was in fact a tidal ford running alongside a railway bridge. A bird watcher told me it would be passable in 5 hours or so. I turned back and rode off route inland for a while, stopping to have a coffee and bargain reduced price punnet of strawberries from a Spar, before crossing the River Esk and rejoining the route proper at Ravenglass. 
 
 ![desc](/img/sc/stone-circles-8.jpg)
 
@@ -58,7 +58,7 @@ I looped up around Bassenthwaite Lake and now needed to head into civilisation: 
 
 ![desc](/img/sc/stone-circles-12.jpg)
 
-From Keswick I headed east on the dedicated cycle path past Thelkeld before dropping down to Ullswater. The wind had been blowing quite strongly all day from the north east and with the constant headwind and 180km or so in my legs I was starting to struggle. I dropped down the gears and just kept rolling along trying to keep cadence up and legs loose. Again, this wasn't a race so it didn't matter how slowly I rode.
+From Keswick I headed east on the dedicated cycle path past Thelkeld before dropping down to Ullswater. The wind had been blowing quite strongly all day from the north east and with the pretty constant headwind since Ulverston and 180km or so in my legs I was starting to struggle. I dropped down the gears and just kept rolling along trying to keep cadence up and legs loose. Again, this wasn't a race so it didn't matter how slowly I rode.
 
 Through Pooley Bridge and up off-road to Moor Divock. The sun had finally fully broken through the clouds and it was turning into a glorious evening. I stopped at two circles up here. The Cockpit and a smaller one. I believe there are a handful of other circles up here and were it not for needing to push on I've have sought them out. 
 
@@ -67,7 +67,7 @@ Through Pooley Bridge and up off-road to Moor Divock. The sun had finally fully 
 
 Having enjoyed the descent from Askham Fell I made steady if not rapid progress over towards Shap. Hills were becoming increasingly hard to climb as fatigue took hold.
 
-I passed over the main road through Shap and climbed up over railway, the M6 and beyond. I'd added a little loop to what would have been an out and back to the next circle, but couldn't recall where on that loop the circle was. Just as was about to retrace my route I spotted it, perhaps the least impressive of the day, and in a field without access. Still, it was downhill back into Shap now, and my route was heading south, which meant the homeward bound.
+I passed over the main road through Shap and climbed up over railway, the M6 and beyond. I'd added a little loop to what would have been an out and back to the next circle, but couldn't recall where on that loop the circle was. Just as was about to retrace my route I spotted it, perhaps the least impressive of the day, and in a field without access. Still, it was downhill back into Shap now and my route was heading south, which meant the homeward bound stretch.
 
 ![desc](/img/sc/stone-circles-16.jpg)
 
