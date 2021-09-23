@@ -62,7 +62,7 @@ The gravel gives way to tarmac again and I make my way to Checkpoint 1 in 30km o
 
 ![desc](/img/racearoundrwanda-13.jpg)
 
-<iframe height='405' width='590' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3065747399/embed/9eabe4f3767dd924d20667db8db63ea71cd6b903'></iframe>
+<iframe height='405' width='980' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3065747399/embed/9eabe4f3767dd924d20667db8db63ea71cd6b903'></iframe>
 
 The welcoming committee of volunteers at every checkpoint was amazing. They were students and being involved with the event was somehow related to their study. They threw themselves into the task at hand with a smile of their face time and time again ensuring that riders had all they need and knew what was going to happen next: I’ll get you a drink now; you’ll get some food here, and then I’ll show you the accommodation. I was handed a bottle of the first of many Skol panache drinks drunk at each checkpoint. Skol were a sponsor of the event and provided ample refreshment. 
 
@@ -114,7 +114,7 @@ Alan and Paul, riding as a pair, caught up and checked I was ok. They rode on th
 
 Checkpoint 2 was one I’d been looking forward to visiting and it didn’t disappoint. Kiningi is the home of Team Rwanda, the national cycling teams’ headquarters and we were welcomed in and treated like pros. Our bikes were taken to be washed and given any mechanical TLC they required and we were fed and watered, and shown to our accomodation in one of the many chalet-like buildings dotted around the compound. As with the first night, my plan was to set off after as little rest as I thought I could get away with, so I got my gear in order, plugged in my phone and GPS to charge and went to load up the route for the next phase of the race. In doing this the GPS software told me that an update was required. What I’d hoped would be a quick 5 mins before bed task became over an hour of wrestling with flaky WiFi and Bluetooth syncing. I finally set my alarm for 3am and got some sleep. 
 
-<iframe height='405' width='590' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3068893690/embed/3469b5b4dcf4ab3330e6760652eb19620bee4db2'></iframe>
+<iframe height='405' width='980' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3068893690/embed/3469b5b4dcf4ab3330e6760652eb19620bee4db2'></iframe>
 
 ![desc](/img/racearoundrwanda-33.jpg)
 
@@ -145,7 +145,7 @@ There are kids alongside the road pretty much everywhere we rode, either coming 
 We each push on towards the checkpoint again, riding at our respective paces through lush terraced plantations acting as the foreground to views of the lake.
 Checkpoint 3 was at a lakeside hotel complex and there were individual rooms on offer as accommodation. This is a chance to relax and refresh. I strip out of my cycling kit and stand in the shower. I turn the tap and there’s nothing coming out. I reach over to the basin and turn the tap there too. Again, there’s nothing. Deflated, I put my manky kit back on and head down to the reception. There was no water in the rooms until 6pm. I spent the hour until I could shower eating more food and catching up with those already arrived and following close behind me. 
 
-<iframe height='405' width='590' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3071466209/embed/a1d1450d4e26ecbf5d43b2f911e9aa591d805197'></iframe>
+<iframe height='405' width='980' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3071466209/embed/a1d1450d4e26ecbf5d43b2f911e9aa591d805197'></iframe>
 
 ![desc](/img/racearoundrwanda-42.jpg)
 ![desc](/img/racearoundrwanda-43.jpg)
@@ -177,7 +177,7 @@ The plateau turned out to be anything but flat, but fuelled up I made good progr
 
 ![desc](/img/racearoundrwanda-52.jpg)
 
-<iframe height='405' width='590' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3074782927/embed/5d65e59baec39e1ee63823c101e26f1baba7d3f2'></iframe>
+<iframe height='405' width='980' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3074782927/embed/5d65e59baec39e1ee63823c101e26f1baba7d3f2'></iframe>
 
 I woke at the final checkpoint knowing that I was going to make it to the finish line back in Kigali. Only 175km remained and there was plenty of time before any cut off might affect my chances. It had rained again, and being at a slight altitude made for a chilly morning. I rode with leg warmers for the first time in the race which acted to serve to block the sun from my rather sunburned legs once the sun did break through after a couple of hours riding. I hit the final gravel section of the ride. 65km or so of undulating tracks through towns and villages where just as had happened each day kids would call out Mzungu! and then run to the side of the track to wave, offer a hand to be high-fived. There was still some cries for money, but many more just going through the ‘good morning, how are you?’ rote ritual. I’m not actually sure anyone knows how to respond with anything but ‘fine, how are you’ but hey … 
 
@@ -207,7 +207,7 @@ I rolled into the finish after 4 days 11 hours and 13 minutes, welcomed by a sma
 ![desc](/img/racearoundrwanda-59.jpg)
 ![desc](/img/racearoundrwanda-60.jpg)
 
-<iframe height='405' width='590' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3076861899/embed/08f01c6e73ac31b951d763acdee64e783f02b58c'></iframe>
+<iframe height='405' width='980' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/3076861899/embed/08f01c6e73ac31b951d763acdee64e783f02b58c'></iframe>
 
 ~~I'll update this page shortly~~ I've added [blog posts](/) with details of my bike set up and kit. I found it useful to look at what others have done in the past when researching my first ultra-distance race and my experience may prove useful to others.
 
