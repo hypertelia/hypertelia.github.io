@@ -83,7 +83,7 @@ My quads were really feeling sore now, and I didn't have much to give on the cli
 
 The headwind was back as I rode down the Lleyn Peninsula, unlike the Gower where I'd ended up sunburned, this time the wind was accompanied by fine drizzle. My jacket and waterproof shorts were doing a find job of keeping me dry, and luckily although wet my feet weren't getting cold. My kit choice seemed vindicated.
 
-I grabbed a coffee and slice of bara brith—I can't believe I waited so long to get started on the most perfect of Welsh energy food—at the next waypoint in Machroes and was joined my another rider, he was soaked through and shivering. I headed back into the drizzle, onwards towards Mynydd Mawr. The rain had now cleared and we were basked in sunshine. I stopped at the café near the headland and ordered a couple of cheese toasties. I don't think you can underestimate the power of taking on warm food to re-invigorate the body and the mind. From a racing perspective I stayed far too long here, but had got into a conversation with the propertier who took a real interest in where I'd been and where I was going, and really, if you're not at the sharp end of the race does another hour or a lost position on the road matter?
+I grabbed a coffee and slice of bara brith—I can't believe I waited so long to get started on the most perfect of Welsh energy food—at the next waypoint in Machroes and was joined by Ricardo again, he was soaked through and shivering. I headed back into the drizzle, onwards towards Mynydd Mawr. The rain had now cleared and we were basked in sunshine. I stopped at the café near the headland and ordered a couple of cheese toasties. I don't think you can underestimate the power of taking on warm food to re-invigorate the body and the mind. From a racing perspective I stayed far too long here, but had got into a conversation with the propertier who took a real interest in where I'd been and where I was going, and really, if you're not at the sharp end of the race does another hour or a lost position on the road matter?
 In the now glorious evening light I rode on and dropped down the beach by the Ty Coch Inn beach bar. What a location for a pub! 
 
 ![desc](/img/abikerace/24.jpg)
@@ -93,13 +93,13 @@ I climbed up again and met another rider (Pascal) coming the other way. We compa
 
 ![desc](/img/abikerace/26.jpg)
 
-Here I spotted a KFC and got some fries. I bumped into the race director again, and offloaded my worries about the hotel incident the night before in a barely cohesive fatigued manner then decided to find a bed for a few hours. I rode on before realising I'd forgotten to pick up the checkpoint which had been not even 200 metres from where we'd chatted. Furious with myself I returned to take a snap, then spurred on by my own stupidity decided to head on to Anglesey where I was sure I'd find somewhere to bivvy as in my mind it was too late to find a hotel.
+Here I spotted a KFC and got some fries. I bumped into the race director again, and offloaded my worries about the hotel incident the night before in a barely cohesive fatigued manner then decided to find a bed for a few hours. I rode on before realising I'd forgotten to pick up the checkpoint which had been not even 200 metres from where we'd chatted. Furious with myself I returned to take a snap, then spurred on by my own stupidity decided to head on to Anglesey where I was sure I'd find somewhere to bivvy as to my mind it was too late to find a hotel.
 
 I'd never been to Anglesey before and hadn't realised how relatively inhabited it was. I rode for what seemed an age following what felt a ridiculously meandering route never finding anywhere to sleep that wasn't either gated or obviously private land. I was becoming a little despondent when I spotted a church. I'd previously noted how few churches I'd passed had had open porches, a staple shelter for bike packers, but amazingly this one did. I bedded down and set a timer for 4 hours to get some proper rest. 
 
 ![desc](/img/abikerace/27.jpg)
 
-I woke, got myself sorted and when in search of the next waypoint. This, a Celtic cross, was the trickiest to locate as it was on a sandy headland. I rode through pinewoods and dropped on to the beach, walking along for a little while before spotted the cross between two dunes on the skyline. I headed towards it, but the tide had made reaching the cross itself impossible with crossing water. I took my snap and headed north west. Despite the early hour I found a convenience store open so grabbed breakfast and supplies for the next couple of hours. Next stop was Holy Island and en route I was caught by Pascal again. He was in good spirits and pushed on ahead of me, cursing in Flemmish as we each missed the same turning before riding off into the distance.
+I woke, got myself sorted and when in search of the next waypoint. This, a Celtic cross, was the trickiest to locate as it was on a sandy headland. I rode through pinewoods and dropped on to the beach, walking along for a little while before spotted the cross between two dunes on the skyline. I headed towards it, but the tide had made reaching the cross itself impossible with a channel crossing. I took my snap and headed north west. Despite the early hour I found a convenience store open so grabbed breakfast and supplies for the next couple of hours. Next stop was Holy Island and en route I was caught by Pascal again. He was in good spirits and pushed on ahead of me, cursing in Flemish as we each missed the same turning before riding off into the distance.
 
 ![desc](/img/abikerace/28.jpg)
 ![desc](/img/abikerace/29.jpg)
@@ -108,7 +108,15 @@ South Stack on Holy Island was another stunning waypoint. I dropped down and gra
 
 ![desc](/img/abikerace/30.jpg)
 
-… then headed south with the wind on my back as quick as my tired legs could manage. There were a few long drags up climbs, but all 'spinnable'. I stopped to have a drink, and a guy approached me to ask if I needed anything. I told him I was good, and it was self-supported anyway. He knew of the event and took a picture of me. We chatted bikes for a bit, then I pushed on back onto the mainland and picked up cycle lanes that'd take me all the way to Chester. There was some seriously good active travel infrastructure in north Wales, that other places could learn from. I got stuck for a while behind a truck driver destroying a trailer by towing it down too narrow a lane …
+… then headed south with the wind on my back as quick as my tired legs could manage. There were a few long drags up climbs, but all 'spinnable'. I stopped to have a drink, and a guy approached me to ask if I needed anything. I told him I was good, and it was self-supported anyway. He knew of the event and took a picture of me. We chatted bikes for a bit, then I pushed on back onto the mainland and picked up cycle lanes that'd take me all the way to Chester. 
+
+![desc](/img/abikerace/30a.jpg)
+
+There was some seriously good active travel infrastructure in north Wales that other places could learn from. 
+
+![desc](/img/abikerace/30b.jpg)
+
+Although I did get stuck for a while behind a truck driver destroying a trailer by towing it down too narrow a lane …
 
 ![desc](/img/abikerace/31.jpg)
 ![desc](/img/abikerace/32.jpg)
