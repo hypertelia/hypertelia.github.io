@@ -11,7 +11,7 @@ summary: Report on the inaugural 'A Bike Race Roughly the Size of Wales'
 
 What's the Welsh for 'stabby bastard hills'?
 
-In Mid-2019 I decided to commit to another ultra-distance race to give my riding a bit of focus in terms of training for something in particular. I didn't fancy flying, as COVID-19 was still affecting people's travel plans, so looked for something close to home. I saw <a href="http://abikerace.co.uk">A Bike Race</a> mentioned on the Twitters, and it seemed to fit the bill: still 6+ months away to work on fitness and easy to get to the start by train. 
+In Mid-2021 I decided to commit to another ultra-distance race to give my riding a bit of focus in terms of training for something in particular. I didn't fancy flying, as COVID-19 was still affecting people's travel plans, so looked for something close to home. I saw <a href="http://abikerace.co.uk">A Bike Race</a> mentioned on the Twitters, and it seemed to fit the bill: still 6+ months away to work on fitness and easy to get to the start by train. 
 
 The race had an interesting sounding premise, self-supported with no set route and checkpoints dotted around the coast of Wales. Waypoints between checkpoints were to be unveiled just a couple of days before the race to give entrants the same limited time to plan an optimum route. That optimum route was a personal choice: stick to A roads for speed; take smaller lanes to avoid traffic; take off-road sections to break it up, all of course somewhat dependent on bike choice. I chose to go with my Fugio shod with 700c 38mm GravelKing SKs that'll roll nicely on the road, but happily put up with a bit of rough stuff too. 
 
