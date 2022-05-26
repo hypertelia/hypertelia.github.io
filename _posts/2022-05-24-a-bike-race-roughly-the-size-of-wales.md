@@ -121,7 +121,7 @@ Although I did get stuck for a while behind a truck driver destroying a trailer 
 ![desc](/img/abikerace/31.jpg)
 ![desc](/img/abikerace/32.jpg)
 
-The climb up to the Great Orme was another get off and push moment. There was no way I was going to ride that today. The ice cream kiosk at the top was shut so no reward save for the steep descent to begin the final push. Just one waypoint left, and only one hill, which in hindsight I could have avoided even that. I'd started to do the maths and realised my 3 1/2 day goal was in reach. The next couple of hours made for the slowest time trial effort ever, head down and trying to stay on top what was really quite a low gear but all I could manage. 
+The climb up to the Great Orme was my second get-off-and-push moment. There was no way I was going to ride that today. The ice cream kiosk at the top was shut so no reward save for the steep descent to begin the final push. Just one waypoint left, and only one hill, and in hindsight I could have avoided even that. I'd started to do the maths and realised my 3 1/2 day goal was in reach. The next couple of hours made for the slowest time trial effort ever, head down and trying to stay on top what was really quite a low gear but all I could manage. 
 
 ![desc](/img/abikerace/33.jpg)
 
@@ -129,9 +129,9 @@ I rode past a man stood alone on the beach with a cone on his head … 
 
 ![desc](/img/abikerace/34.jpg)
 
-I reached Talacre (which for the record _has_ to be pronounced with as Scouse an accent as you can manage) snapped the final lighthouse waypoint, then got my head down again for the straight and pan flat run into the finish. I kept an eye on the time and my speed, rounding up and down to work out a safe average speed I needed to come in by 8pm. My tired legs could just about keep a steady 30kph which I hoped would be ok as I rode alongside the Dee. 
+I reached Talacre (which for the record _has_ to be pronounced with as Scouse an accent as you can manage) snapped the final lighthouse waypoint, then got my head down again for the straight and pan flat run into the finish. I kept an eye on the time and my speed, rounding up and down to work out a safe average speed I needed to come in by 8pm. My tired legs could just about keep a steady 30kph which I was pretty sure would be ok as I rode alongside the Dee. 
 
-I swung off the riverside path and quickly found myself bearing down on the finish, turned a last corner and rode down a dead-end. I spotted Kirsty, my wife, waving. I doubled back and round to the correct unit which marked the finish. Job done, and wife, mother, and dog all there to meet me. A proper nice surprise.
+I swung off the riverside path and quickly found myself bearing down on the finish, turned a last corner and rode down a dead-end. I spotted Kirsty, my wife, waving. I doubled back and round to the correct unit which marked the finish. Job done, and wife, mother, and Gilbert the dog all there to meet me. A proper nice surprise.
 
 ![desc](/img/abikerace/35.jpg)
 
