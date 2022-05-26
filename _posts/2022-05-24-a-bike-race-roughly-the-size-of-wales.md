@@ -110,12 +110,12 @@ South Stack on Holy Island was another stunning waypoint. I dropped down and gra
 
 … then headed south with the wind on my back as quick as my tired legs could manage. There were a few long drags up climbs, but all 'spinnable'. I stopped to have a drink, and a guy approached me to ask if I needed anything. I told him I was good, and it was self-supported anyway. He knew of the event and took a picture of me. We chatted bikes for a bit, then I pushed on back onto the mainland and picked up cycle lanes that'd take me all the way to Chester. There was some seriously good active travel infrastructure in north Wales, that other places could learn from. I got stuck for a while behind a truck driver destroying a trailer by towing it down too narrow a lane …
 
-![desc](/img/abikerace/21.jpg)
+![desc](/img/abikerace/31.jpg)
 ![desc](/img/abikerace/32.jpg)
 
 The climb up to the Great Orme was another get off and push moment. There was no way I was going to ride that today. The ice cream kiosk at the top was shut so no reward save for the steep descent to begin the final push. Just one waypoint left, and only one hill, which in hindsight I could have avoided even that. I'd started to do the maths and realised my 3 1/2 day goal was in reach. The next couple of hours made for the slowest time trial effort ever, head down and trying to stay on top what was really quite a low gear but all I could manage. 
 
-![desc](/img/abikerace/32.jpg)
+![desc](/img/abikerace/33.jpg)
 
 I rode past a man stood alone on the beach with a cone on his head … 
 
@@ -128,7 +128,7 @@ I swung off the riverside path and quickly found myself bearing down on the fini
 ![desc](/img/abikerace/35.jpg)
 
 And that was that. Perhaps an underwhelming finish line if truth be told, but it was what had gone before that mattered. The Welsh coastline is stunning and my route had taken me places I'd never visited before. I could have made a theoretically easier or faster route, but it'd have made little difference to my efforts in race result terms and to my mind, unless you are at the top of the leaderboard you're really only competing with yourself: I'm going to take this as a win.
- 
-Oh, and Google translate tells me it's 'bryniau bastard trywanu'. 
 
-<iframe height='800' width='1024' frameborder='0' allowtransparency='true' scrolling='no' src='https://www.strava.com/activities/7193837954/embed/e29f789c30276a77be00ea4b02b556e185e3860c'></iframe>
+Oh, and Google translate tells me that it's 'bryniau bastard trywanu'. 
+
+<iframe height='405' width='590' frameborder='0' allowtransparency='true' scrolling='no' style="display:block; margin: 0 auto;" src='https://www.strava.com/activities/7193837954/embed/e29f789c30276a77be00ea4b02b556e185e3860c'></iframe>
