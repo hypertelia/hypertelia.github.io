@@ -3,7 +3,8 @@ layout: post
 title: A Bike Race Roughly the Size of Wales 
 date: 2022-05-24 13:50
 category: 
-author: 
+author: Pete Aylward
+image: /img/abikerace/22.jpg
 tags: []
 summary: Report on the inaugural 'A Bike Race Roughly the Size of Wales'
 ---
