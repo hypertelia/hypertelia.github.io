@@ -30,10 +30,6 @@ I'm hoping to be successful in my application and be able to take advantage of t
 
 Below are a fairly random selection of photographs from a variety of cycling adventures I've experienced, both local and further afield.
 
-As a kid my bike was my ticket to adventure and to this day have vivid memories of discovering the world as I knew it on two wheels. 40+ years on and I'm really no different: my bikes are what take me to and through destinations that I want to document and to share with others. I believe photography is by far the best medium with which to do this, whether that be via broad vistas, or select vignettes of places, people, or objects.
-
-I hope to take advantage of the Rider's Lens Grant to give focus and direction to my photography during future adventures. I believe that a critique of existing work, together with mentorship on how best to tell a story via photographs will result in cohesive collections that I'd be proud to share, confident that I'm successfully communicating to others the sense of place that I experience. I believe I have a good eye. The grant would allow me to prove this.
-
 ![kid with wooden bike](/img/riderslens/1.jpg)
 ![man carrying chairs on his head](/img/riderslens/3.jpg)
 ![cyclist on road in arch-like trees](/img/riderslens/13.jpg)
