@@ -12,7 +12,7 @@ The bicycle is the perfect vehicle on which to travel at a speed fast enough to 
 
 I'm hoping to be successful in my application and be able to take advantage of the storytelling mentorship workshop so as to work on developing a cohesive voice for projects within my portfolio.
 
-Below are a fairly ad hoc selection of photographs from a variety of cycling adventures I've experienced, both local and further afield.
+Below are a varied and fairly ad hoc selection of photographs from a variety of cycling adventures I've experienced in recent years, both local and further afield.
 
 ![kid with wooden bike](/img/riderslens/1.jpg)
 ![man carrying chairs on his head](/img/riderslens/3.jpg)
@@ -23,5 +23,5 @@ Below are a fairly ad hoc selection of photographs from a variety of cycling adv
 ![fatbike and sunflowers](/img/riderslens/49.jpg)
 ![painted sheds](/img/riderslens/20.jpg)
 ![cyclist heading towards lush green hills](/img/riderslens/34.jpg)
-![cotton on fells](/img/riderslens/46.jpg)
+![bike in front of cathedral](/img/riderslens/19.jpg)
 
