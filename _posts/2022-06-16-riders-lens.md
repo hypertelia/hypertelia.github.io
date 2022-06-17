@@ -22,6 +22,6 @@ Below are a varied and fairly ad hoc selection of photographs from a variety of 
 ![gravel climb](/img/riderslens/17.jpg)
 ![fatbike and sunflowers](/img/riderslens/49.jpg)
 ![painted sheds](/img/riderslens/20.jpg)
-![cyclist heading towards lush green hills](/img/riderslens/34.jpg)
-![bike in front of cathedral](/img/riderslens/19.jpg)
+![cyclist painted on tree](/img/riderslens/71.jpg)
+![shadow of cyclist](/img/riderslens/74.jpg)
 
