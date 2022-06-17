@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Bikepacking.com Rider's Lens Grant
+title: Bikepacking.com Rider's Lens Grant Application
 date: 2022-06-16 11:12
 category: 
 author: 
@@ -8,25 +8,9 @@ tags: []
 summary: A selection of photos to accompany my application for the Bikepacking.com Rider's Lens Grant
 ---
 
-> **click | klɪk |**
-> noun
-> 1. _Slang_ a kilometer: **he'd only ridden 40 clicks that morning**
-> 2. a short, sharp sound: **delayed by the repeated click of a camera shutter**
+The bicycle is the perfect vehicle on which to travel at a speed fast enough to cover a fair distance yet slow enough to fully take in the environment through which you are moving. The photograph is the perfect medium to record adventures undertaken by bike and _any_ ride, tiny or epic, can provide myriad opportunities to document a sense of place.
 
-> **focus | ˈfəʊkəs |**
-> noun 
-> 1. the state or quality of having or producing clear visual definition: **hoping the photographs were in focus**
-> 2. an act of concentrating interest or activity on something: **with the focus now being on reaching home before dark**
-
-The bicycle is the perfect vehicle on which to travel at a speed fast enough to cover a fair distance yet slow enough to fully take in the environment through which you are moving. The photograph is the perfect medium to record adventures undertaken by bike and _any_ ride, tiny or epic can provide myriad opportunities to document a sense of place.
-
-Striking a balance between 'clicks' and 'clicks' and 'focus' and 'focus' can be a challenge …
-
-> **focus | ˈfəʊkəs |**
-> verb
-> 1. (focus on) [with object] concentrate: **So what should I focus on?**
-
-I'm hoping to be successful in my application and be able to take advantage of the storytelling mentorship workshop so as to develop a cohesive voice for projects within my portfolio.
+I'm hoping to be successful in my application and be able to take advantage of the storytelling mentorship workshop so as to work on developing a cohesive voice for projects within my portfolio.
 
 Below are a fairly ad hoc selection of photographs from a variety of cycling adventures I've experienced, both local and further afield.
 
