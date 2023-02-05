@@ -3,7 +3,10 @@ layout: post
 title: #RaR01 Race Report
 date: 2020-02-14 20:42
 category: [cycling,race,ultra-endurance]
-author: 
+image: /img/racearoundrwanda-54.jpg
+author: Pete Aylward
+
+
 tags: [report]
 summary: 
 description: Race report of the inaugural Race Around Rwanda, a 1000km self-supported single stage bikepacking race
