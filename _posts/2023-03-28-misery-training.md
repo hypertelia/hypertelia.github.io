@@ -15,8 +15,7 @@ When I sign up to ride a long-distance cycling event I accept that it'll be a ch
 
 The concept of misery training was introduced to me by my wife who, while she plays it down, is a bona fide kick-ass ultra marathon runner. It boils down to seeing all that goes 'wrong' when preparing for an event as part of the training process knowing that overcoming any trial or tribulation will only stand you in good stead come race day.
 
-Weather is the easy one. It's raining: a good opportunity to test your waterproofs, yeah? More than that though, it's a chance to go through the whole process. Sure you
-'re only 10km from being home and dry but let's run it like you're not. How long before you decide that spot of rain is actually a proper shower? Have you packed your jacket and trews so that they're easy to get to? Regardless, get em on. Then off. Then on again. If you know a route that's gonna get muddy or boggy then don't avoid it. And if you've a choice to make, ride into any headwind too. Choosing to make yourself a damp, sweaty, muddy mess is all good preparation for when you can't make that choice for yourself.
+Weather is the easy one. It's raining, and at a minimum just seeing through a training session as originally planned will help. Sure you're only 10km from being home and dry but let's play it like you're not. How long before you decide that spot of rain is actually a proper shower? Have you packed your jacket and trews so that they're easy to get to? Regardless, get em on. Then off. Then on again. If you know a route that's gonna get muddy or boggy then don't avoid it. And if you've a choice to make, ride into any headwind too. Choosing to make yourself a damp, sweaty, muddy mess is all good preparation for when you can't make that choice for yourself. 
 
 Beyond the weather though misery may need to be induced:
 
