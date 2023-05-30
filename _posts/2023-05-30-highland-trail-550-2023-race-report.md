@@ -24,6 +24,7 @@ There was a little moisture in the air, but it was warm, there was a tailwind an
 
 ---
 By way of a backstory to this pain, I had a big off a few weeks before the start: An OTB while coming down Three Rivers towards Staveley while on a social gravel ride. I landed heavily on my face and required surgery on mouth and tongue. My face had healed well but I'd also strained my rotator cuffs. I've been undergoing physio since, and having done a handful of rides since felt things would be ok. 90% of motion in my shoulder is pain free, it transpires that the exact movement required to manhandle a bike when things get rough falls into that other 10%.
+
 ---
 
 ![tree and gorse near a loch](/img/ht550/02.jpg)
