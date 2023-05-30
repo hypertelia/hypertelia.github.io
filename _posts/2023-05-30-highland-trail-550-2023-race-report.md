@@ -1,6 +1,6 @@
 ---
 layout: 
-title: Highland Trail 550 2023 - Too Much Too Soon
+title: Highland Trail 550 2023
 date: 2023-05-30 16:03
 category: 
 author: 
