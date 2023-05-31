@@ -23,7 +23,7 @@ With that done we rolled up the road to the official start point and soon after 
 There was a little moisture in the air, but it was warm, there was a tailwind and I was making good progress. "Have you done this before?" was the usual opener once any introductions had been made, and on announcing myself as a rookie was told of the first section of bog was due before too long by one route veteran. And sure enough as I rode Rannoch Forest on the approach to Loch Ericht I found myself off the bike and trying to pick a line through myriad boggy patches. When my front wheel dug in and I needed to pull the bike to get moving again I immediately felt pain in my right shoulder blade. I'd half expected this, but this was immediately a 6 or 7 out of 10 on the pain scale, and upon being caught and rapidly passed by local-to-me-in-Cumbria, Mike Toyn and soon-to-be-neighbour, Rob Waller, quickly realised that in looking to manage this pain I was moving far slower than those around me. 
 
 ---
-By way of a backstory to this pain, I had a big off a few weeks before the start: An OTB while coming down Three Rivers towards Staveley while on a social gravel ride. I landed heavily on my face and required surgery on mouth and tongue. My face had healed well but I'd also strained my rotator cuffs. I've been undergoing physio since, and having done a handful of rides since felt things would be ok. 90% of motion in my shoulder is pain free, it transpires that the exact movement required to manhandle a bike when things get rough falls into that other 10%.
+By way of a backstory to this pain, I had a big off a few weeks before the start: An 'over-the-bars' while coming down Three Rivers towards Staveley while on a social gravel ride. I landed heavily on my face and required surgery on mouth and tongue. My face had healed well but I'd also strained my rotator cuffs. I've been undergoing physio since, and having done a handful of rides since felt things would be ok. 90% of motion in my shoulder is pain free, it transpires that the exact movement required to manhandle a bike when things get rough falls into that other 10%.
 
 ---
 
@@ -45,11 +45,13 @@ Towards the foot of the stop-start descent I met film maker Catherine Dunn and a
 
 Between Ben Alder and Kinloch Laggan as the terrain eased, I caught up with Lorah and Tom again. This oddly encouraged me that my decision to stop was the right one, as it highlighted just how off kilter my on and off-road riding capabilities were at present. I've no doubt they're faster riders than I am anyway, but as we hit another off road section they vanished into the distance as I winced my way up another lumpy ascent. 
 
-Corrieyairack Pass was as majestic as I'd hoped, the zig zags on the way up just as err zig zaggy as they appeared on the map, and the descent an absolute joy. I arrived in Fort Augustus just after 8. Too late for the shop, but more importantly in plenty of time for Pizza. Lorah and Tom were there too, Mike was just leaving and Phil was about as well. I ordered my pizza, took my time eating it as the others headed off, let Alan know I was scratching by text, then with a heavy heart headed off route down the Great Glen towards Fort William.
+Corrieyairack Pass was as majestic as I'd hoped, the zig zags on the way up just as err zig zaggy as they appeared on the map, and the descent an absolute joy. I arrived in Fort Augustus just after 8. Too late for the shop, but more importantly in plenty of time for Pizza. Lorah and Tom were there too, Mike was just leaving and Phil was about as well. I ordered my pizza, took my time eating it as the others headed off, let Alan know I was scratching by text, then with a heavy heart headed off-route down the Great Glen towards Fort William to find somewhere to camp for the night.
+
+In riding just a day of the HT550 group start I still feel fortunate to have experienced it. Given I only got to see a fraction of it, it's evident that Alan has devised the most incredible route and I'm dead set on giving it a go next time round when back to full strength. 
 
 ![bike laying next to a small tent in a grassy plot](/img/ht550/06.jpg)
 
-Camping on route, and riding #partyPace I stopped in Fort William for a late breakfast before taking the road route up to the West Highland Way to stop with friends in Kinlochleven. I bypassed Devil's Staircase, but caught the WHW again in Glen Coe and took that all the way back to Tyndrum. 
+Riding #partyPace I stopped in Fort William for a late breakfast before taking the road route up to the West Highland Way to stop with friends in Kinlochleven. I bypassed Devil's Staircase, but caught the WHW again in Glen Coe and took that all the way back to Tyndrum. 
 
 ![gravel track weaving down a glen](/img/ht550/07.jpg)
 
