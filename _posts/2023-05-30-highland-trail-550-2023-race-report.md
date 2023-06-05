@@ -45,13 +45,13 @@ Towards the foot of the stop-start descent I met film maker Catherine Dunn and a
 
 Between Ben Alder and Kinloch Laggan as the terrain eased, I caught up with Lorah and Tom again. This oddly encouraged me that my decision to stop was the right one, as it highlighted just how off kilter my on and off-road riding capabilities were at present. I've no doubt they're faster riders than I am anyway, but as we hit another off road section they vanished into the distance as I winced my way up another lumpy ascent. 
 
-Corrieyairack Pass was as majestic as I'd hoped, the zig zags on the way up just as err zig zaggy as they appeared on the map, and the descent an absolute joy. I arrived in Fort Augustus just after 8. Too late for the shop, but more importantly in plenty of time for Pizza. Lorah and Tom were there too, Mike was just leaving and Phil was about as well. I ordered my pizza, took my time eating it as the others headed off, let Alan know I was scratching by text, then with a heavy heart headed off-route down the Great Glen towards Fort William to find somewhere to camp for the night.
+Corrieyairack Pass was as majestic as I'd hoped, the zig zags on the way up just as err, zig zaggy as they appeared on the map, and the descent an absolute joy. I arrived in Fort Augustus just after 8. Too late for the shop, but more importantly in plenty of time for Pizza. Lorah and Tom were there too, Mike was just leaving and Phil was about as well. I ordered my pizza, took my time eating it as the others headed off, let Alan know I was scratching by text, then with a heavy heart headed off-route down the Great Glen towards Fort William to find somewhere to camp for the night.
 
 In riding just a day of the HT550 group start I still feel fortunate to have experienced it. Given I only got to see a fraction of it, it's evident that Alan has devised the most incredible route and I'm dead set on giving it a go next time round when back to full strength. 
 
 ![bike laying next to a small tent in a grassy plot](/img/ht550/06.jpg)
 
-Riding #partyPace I stopped in Fort William for a late breakfast before taking the road route up to the West Highland Way to stop with friends in Kinlochleven. I bypassed Devil's Staircase, but caught the WHW again in Glen Coe and took that all the way back to Tyndrum. 
+Riding #partyPace I stopped in Fort William for a late breakfast before taking the road route up to the West Highland Way to stop with friends in Kinlochleven. I bypassed Devil's Staircase, but caught the WHW again in Glen Coe and took that all the way back to Tyndrum. Riding along I did wonder if I'd have been ok carrying on, but a run of water bars while descending towards King's House Hotel painfully brought me to my senses once more.
 
 ![gravel track weaving down a glen](/img/ht550/07.jpg)
 
@@ -59,6 +59,6 @@ I'd made a considered decision to start. I really thought it'd be ok and so was 
 
 > "Well, son, a funny thing about regret is that it's better to regret something you have done than to regret something you haven't done."
 
-HT550 finishers get a complimentary meal at the Real Food Café. I paid for one. Hopefully that'll be just this time round … 
+HT550 finishers get a complimentary meal at the Real Food Café. I paid for one. Fingers crossed that'll be just this time … 
 
 ![chicken burger](/img/ht550/08.jpg)
