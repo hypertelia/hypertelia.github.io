@@ -51,7 +51,7 @@ In riding just a day of the HT550 group start I still feel fortunate to have exp
 
 ![bike laying next to a small tent in a grassy plot](/img/ht550/06.jpg)
 
-Riding #partyPace I stopped in Fort William for a late breakfast before taking the road route up to the West Highland Way to stop with friends in Kinlochleven. I bypassed Devil's Staircase, but caught the WHW again in Glen Coe and took that all the way back to Tyndrum. Riding along I did wonder if I'd have been ok carrying on, but a run of water bars while descending towards King's House Hotel painfully brought me to my senses once more.
+Riding #partyPace I stopped in Fort William for a late breakfast before taking the road route up to the West Highland Way to stop with friends in Kinlochleven. I bypassed Devil's Staircase, but caught the WHW again at the top of Glen Coe pass and took that all the way back to Tyndrum. Riding along I did wonder if I'd have been ok carrying on, but a run of water bars while descending towards King's House Hotel painfully brought me to my senses once more.
 
 ![gravel track weaving down a glen](/img/ht550/07.jpg)
 
