@@ -12,23 +12,23 @@ I'm a bit of a map geek and love to spend time reading them and plotting routes.
 
 Without judgement and just for comparison, below are a collection of routes offered up by various services for a short 'Kentmere to Coniston' ride. 
 
-** Ordnance Survey **
+## Ordnance Survey ##
 
 ![](/img/gpx/os.png)
 
-** Komoot **
+## Komoot ##
 
 ![](/img/gpx/komoot.png)
 
-** Cycle.travel **
+## Cycle.travel ##
 
 ![](/img/gpx/cycletravel.png)
 
-** Ride with GPS **
+## Ride with GPS ##
 
 ![](/img/gpx/ridewithgps.png)
 
-** Tarmacs **
+## Tarmacs ##
 
 ![](/img/gpx/tarmacs.png)
 
