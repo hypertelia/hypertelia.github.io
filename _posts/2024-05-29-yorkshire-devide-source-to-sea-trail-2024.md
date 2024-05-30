@@ -5,7 +5,7 @@ date: 2024-05-29 17:48
 category: 
 author: 
 tags: []
-image: 
+image: /img/yd/4.jpg
 summary: A report from riding the Yorkshire Divide - Source to Sea Trail group start race 2024
 ---
 
