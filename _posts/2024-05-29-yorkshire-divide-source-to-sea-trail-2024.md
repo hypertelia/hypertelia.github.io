@@ -125,7 +125,7 @@ Hitting the canal was a relief. I knew that this would take me all the way back 
 
 ![](/img/yd/36.jpg)
 
-I painfully pedalled the couple of kilometers back to my van, threw my rancid smelling kit underneath it. and crashed out for a good few hours sleep. I woke and checked the tracker again to see that Vaughan was stopped but Jade wasn't far from the finish now. I had a shower at the leisure centre I was packed at then went back to Hebden Bridge, arriving just as Jade rolled in. We went and got breakfast and compared notes. We learned that Vaughan had scratched overnight, done for but apparently happy with his achievements. I think this race was his first time riding 'up north', and what an introduction that must have been.
+I painfully pedalled the couple of kilometers back to my van, threw my rancid smelling kit underneath it. and crashed out for a good few hours sleep. I woke and checked the tracker again to see that Vaughan was stopped but Jade wasn't far from the finish now. I had a shower at the leisure centre I was parked at then went back to Hebden Bridge, arriving just as Jade rolled in. We went and got breakfast and compared notes. We learned that Vaughan had scratched overnight, done for but apparently happy with his achievements. I think this race was his first time riding 'up north', and what an introduction that must have been.
 
 <div class="strava-embed-placeholder" data-embed-type="activity" data-embed-id="11527645965" data-style="standard" data-from-embed="false"></div><script src="https://strava-embeds.com/embed.js"></script>
 
