@@ -119,7 +119,7 @@ I totally lost any sense of direction as the route neared Castleford and Wakefie
 ![](/img/yd/32.jpg)
 ![](/img/yd/33.jpg)
 
-I'm not a racer, but I had been keeping an eye on the tracker. Vaughan was gaining on me and Jade wasn't far behind. I looked at the route and could see I was on a final loop before the finish, so decided to properly go for it. I'm never at the top of a leaderboard(‡) and it made for a nice challenge to hold that position. 
+I'm not a racer, but I had been keeping an eye on the [tracker](http://trackleaders.com/yorkshiredivide24). Vaughan was gaining on me and Jade wasn't far behind. I looked at the route and could see I was on a final loop before the finish, so decided to properly go for it. I'm never at the top of a leaderboard(‡) and it made for a nice challenge to hold that position. 
 
 ![](/img/yd/34.jpg)
 
