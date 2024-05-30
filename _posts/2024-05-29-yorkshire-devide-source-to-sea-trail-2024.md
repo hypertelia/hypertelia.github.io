@@ -9,17 +9,9 @@ image: /img/yd/4.jpg
 summary: A report from riding the Yorkshire Divide - Source to Sea Trail group start race 2024
 ---
 
-## TL;DR
+Before I start rambling, here's a summary: Day 1, 193km winding up the west of the Dales; Day 2 210km across the top of the Dales into the Moors; Day 3 191km down the coast then back inland and heading south; Day 4 266km going out east then all the way back west. My official ride time was 3 days 21 hours 9 minutes.
 
-| Day | Daily | Cumulative  | Summary | 
-| :-----------: | :-----------: | :-----------: | :----------- |
-| 1      | 193km | 193km | Winding route up the west of the Dales |
-| 2   | 210km | 403km | Across the top of the Dales into the Moors |
-| 3   | 191km | 594km |  Down the coast then back inland and heading south |
-| 4   | 266km  | 860km | Out east then all the way west |
-| | | | Official time: 3 days 21 hours 9 minutes |
-
-## Race Report
+### Race Report
 
 I applied for the Highland Trail 550 again this year, but didn't get in. I thought about riding that as an ITT but really wanted the group start/race thing, so looked for a suitable alternative. Far closer to home than The Highlands, just a county over from where I live, Adrian has a build up a series of races under the Yorkshire Divide brand, with the [Source to Sea Trail](https://yorkshiredivide.co.uk/yd-850) being his longest.
 
