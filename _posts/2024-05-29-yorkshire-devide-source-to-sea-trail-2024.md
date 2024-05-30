@@ -5,7 +5,7 @@ date: 2024-05-29 17:48
 category: 
 author: 
 tags: []
-image: 
+image: /img/yd/4.jpg
 summary: A report from riding the Yorkshire Divide - Source to Sea Trail group start race 2024
 ---
 
@@ -18,8 +18,6 @@ summary: A report from riding the Yorkshire Divide - Source to Sea Trail group s
 | 3   | 191km | 594km |  Down the coast then back inland and heading south |
 | 4   | 266km  | 860km | Out east then all the way west |
 | | | | Official time: 3 days 21 hours 9 minutes |
-
-Offical time: 3 days 21 hours 9 minutes.
 
 ## Race Report
 
