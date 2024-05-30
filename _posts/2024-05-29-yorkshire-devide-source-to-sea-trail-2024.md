@@ -9,7 +9,7 @@ image: /img/yd/4.jpg
 summary: A report from riding the Yorkshire Divide - Source to Sea Trail group start race 2024
 ---
 
-Before I start rambling, here's a summary: Day 1, 193km winding up the west of the Dales; Day 2 210km across the top of the Dales into the Moors; Day 3 191km down the coast then back inland and heading south; Day 4 266km going out east then all the way back west. My official ride time was 3 days 21 hours 9 minutes.
+Before I start rambling, here's a summary: Day 1, 193km winding up the west of the Dales; Day 2, 210km across the top of the Dales into the Moors; Day 3, 191km down the coast then back inland and heading south; Day 4, 266km going out east then all the way back west. My official ride time was 3 days 21 hours 9 minutes.
 
 ### Race Report
 
