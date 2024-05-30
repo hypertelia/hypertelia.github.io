@@ -19,8 +19,6 @@ summary: A report from riding the Yorkshire Divide - Source to Sea Trail group s
 | 4   | 266km  | 860km | Out east then all the way west |
 | | | | Official time: 3 days 21 hours 9 minutes |
 
-Offical time: 3 days 21 hours 9 minutes.
-
 ## Race Report
 
 I applied for the Highland Trail 550 again this year, but didn't get in. I thought about riding that as an ITT but really wanted the group start/race thing, so looked for a suitable alternative. Far closer to home than The Highlands, just a county over from where I live, Adrian has a build up a series of races under the Yorkshire Divide brand, with the [Source to Sea Trail](https://yorkshiredivide.co.uk/yd-850) being his longest.
