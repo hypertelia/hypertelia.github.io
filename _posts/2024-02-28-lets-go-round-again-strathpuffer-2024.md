@@ -20,7 +20,7 @@ It was relatively mild overnight and in the morning. I'd brought a spare set of 
 
 I jogged with the crowd, picked up my bike and eased myself onwards and upwards onto the course. From this first lap on, the first half of this long climb was a riot. The trackside team pit areas were like stumbling from one rave into another again and again: sound systems blaring, cowbells ringing, people shouting … Good times! I was riding my dropbar Cotic Cascade which seems to climb better than many managed on their MTBs, so picked off many a rider on the climb. As the firetrack gave way to singletrack the riding became far more technical than I'd thought it would be and my progress would slow. The pitted rocky slabs made it tricky to maintain any kind of flow, perhaps as a result of being a little more head-down than a flat-barred bike, and some of the riders I'd pass on the climb would come back past where they could squeeze by. This ebb and flow would repeat itself around the lap, bike choice _perhaps_ evening up overall.
 
-![](/img/strathpuffer/02.jpg)
+![](/img/strathpuffer/04.jpg)
 
 Being my first attempt at the race, I'd not really got a plan nor an idea of how long a lap may take, but had kinda thought I'd do a handful of laps before a pause to properly refuel and then go again. I did three, then pulled off the course to the van. I was already feeling pretty beaten up so had a bit of a stretch, ate, and headed back out. Two laps this time and back in again. That was perhaps 6 hours in and from then on either two or just a single lap between quick stops would become the norm, including stopping once at the start/finish area for a longer rest and warm food.
 
@@ -31,7 +31,7 @@ At one stop I checked the leaderboard. I was actually doing ok, despite feeling 
 
 ![](/img/strathpuffer/03.jpg)
 
-![](/img/strathpuffer/04.jpg)
+![](/img/strathpuffer/02.jpg)
 
 Riding into daylight always feels great and today was no exception. I did another couple of laps then gathered my thoughts at the start/finish tent over a portion of fries. I'd done 13 laps, which obviously wouldn't do as a number to leave things on, so decided on one more before calling time. This final lap was incredibly stop-start. I was feeling absolutely battered, and while you can start another lap anytime before the 24 hours elapses, with about 25 mins to go, I was done. 
 
