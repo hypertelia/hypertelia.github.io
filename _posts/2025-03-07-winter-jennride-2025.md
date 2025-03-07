@@ -19,11 +19,12 @@ The 160km/100 mile loop starts and finishes in Staveley in the southern Lake Dis
 
 The evening before the ride, there was chance to meet up with other riders near the starting point at The Eagle & Child Inn, and it was good to catch up with people I know from other bikepacking events and to meet others I knew by name but not in person. As ever, there was talk of what bike you were riding, what kit you were carrying, and any plans for how you were going to tackle it. The fact that the \#Jennride isn’t a race removes nearly any competitive element or notion of ‘smashing it’: Everyone was just along for the ride.
 
-![view of rocky track from behind handlebars](/img/jennride-2025/01.jpg)
+![cyclists queueing for coffee](/img/jennride-2025/01a.jpg)
 
 Riders can sign-on and leave any time between 7 and 9 am, but as the café opened at 8, it made sense to grab something (more) for breakfast and a coffee before I left. Small groups and solo riders rode off while others milled around waiting for buddies to arrive or just delaying heading out into what was a cold morning. Coffee and croissant devoured, I put the time next to my name on the sign-out sheet and headed out. Early on I passed a father and son team—Alex and 10(!) year old Zach—who’d stopped for an early ‘fizzy fish’ pick-me up. 
 
 ![father and son stood with bikes next to track](/img/jennride-2025/02.jpg)
+![view of rocky track from behind handlebars](/img/jennride-2025/01.jpg)
 
 The first leg of the ride took us on roads and tracks to Ambleside, where event supporters Alpkit had laid on coffee and cake outside their shop. This was only 20 km in, so just a quick pit stop and then on to the first proper challenge of the ride, Kirkstone via The Struggle. The route took a sneaky track that runs parallel to the road and then pops out just before the iconic switchbacks and 25% ramps to the summit. I dropped down the gears, sat and spun my legs, and before I knew it had reached the top. I passed a couple of riders resting at the top but was feeling good, so I pressed on, dropping quickly down the pass and turning towards the next and perhaps toughest challenge of the route, Boredale Hause.
 
@@ -41,6 +42,8 @@ This was about as far north as the route went, and it now swung round west, clim
 
 Three riders came past me on the Old Coach Road. I was riding a fully rigid bike, and the rocky track was far slower on this than it was for them with their suspension setups. I caught them again as we rejoined the road. It transpired that one of them had been riding rigid too, and their pannier rack hadn’t coped with the terrain too well. They were strapping it back together with some zip ties. It pays to take it steady sometimes!
 
+![track leading round a rocky outcrop](/img/jennride-2025/05a.jpg)
+
 Rich was waiting again at Thirlmere. I’d barely eaten any of the snacks I was carrying and again grabbed something from him and rode alongside the reservoir before the speedy road descent to Grasmere. We took a zig-zagging track to avoid the steep road climb up Redbank and then dropped into Langdale at Chapel Stile, where it was a flat ride along the valley to the campsite.
 
 ![tents in a campsite in dim light](/img/jennride-2025/06.jpg)
@@ -48,10 +51,13 @@ Rich was waiting again at Thirlmere. I’d barely eaten any of the snacks I was 
 Last year I pitched my tent in the dark. And in the rain. This year it was still light and was dry and I wasn’t complaining. I got set up, had a quick wash, and then headed over to Old Dungeon Ghyll pub to grab something to eat and catch up with others. A few were already there, and others arrived during the evening. Where the \#Jennride is so refreshing is that while there’s a predefined route, it’s very much just a suggestion. In chatting to riders, many had decided to omit bits of the route to avoid a climb they didn’t fancy or to take detours via multiple pubs en route. There’s no bravado nor concern about not completing the full thing. Everyone had had a top day out, regardless of how they’d got here. 
 
 ![tents behind a jennRide poster](/img/jennride-2025/07.jpg)
+![breakfast menu](/img/jennride-2025/07a.jpg)
+
 
 After not too chilly a night’s sleep, I packed up and grabbed a bacon butty from the campsite shop. This really isn’t a roughing it/wild camping kind of event! The second day’s route is far shorter than day one, but I’d warned a few who didn’t know the area about the rude start to the day. There was barely a few hundred meters of road before a 25% sign and the climb up to Blea Tarn. With little warm-up, this is tough, but a little less than 15 minutes of spinning as best I could while weaving about the road, and I was at the top.
 
 ![cyclists walking behind a car on a rocky track](/img/jennride-2025/08.jpg)
+![mounds of waste slate](/img/jennride-2025/08a.jpg)
 
 It was a stunning morning, with sunlight dappling the fells through breaks in the clouds as we rode through Tilberthwaite on to Hawkshead via Tarn Hows and Grizedale Forest. A few of us got stuck behind a car early on. Just because you can drive your car on a green lane doesn’t mean you should. We urged him to turn back and after our warnings, agreed it was likely for the best. Much as on the first day, I was caught up by and also overtook other riders. The ebb and flow of riders while on a ride such as this makes for a great way of turning what can be a solitary experience more social. 
 
