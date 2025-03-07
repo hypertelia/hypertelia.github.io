@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Winter #Jennride 2025
+title: "Winter #Jennride 2025"
 date: 2025-03-07 09:02
 category: 
 author: pete aylward
