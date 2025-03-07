@@ -9,7 +9,7 @@ summary: A write up of the 2025 Winter Jennride
 image: /img/jennride-2025/03.jpg
 ---
 
-This post was written for Will Nell-Barker's website WillCycle.com. [Go check it out](https://www.willcycle.com/)! 
+This post was originally written for at published Will Nell-Barker's website WillCycle.com. [Go check it out](https://www.willcycle.com/)! It's republished here with a few extra photos. 
 
 The \#Jennride has been a fixture on the calendar since 2016, the year following the death of Jenn Hill, [Singletrack magazine’s](https://singletrackworld.com) deputy editor, and acts as a fundraiser for [St. Gemma’s Hospice](https://www.st-gemma.co.uk) and other causes, including [Rider Resilience](https://riderresilience.org). It also acts as a great excuse to get together with like-minded souls for a weekend of riding through some of the finest scenery in the land. It usually takes place in the summer, but as of last year there’s a winter edition too.
 
