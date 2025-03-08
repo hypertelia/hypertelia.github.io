@@ -35,6 +35,10 @@ _Note that some of these offer preferences as to the type of bike being ridden a
 
 ![](/img/gpx/apple.png)
 
+## Strava ##
+
+![](/img/gpx/strava.png)
+
 ## Tarmacs ##
 
 ![](/img/gpx/tarmacs.png)
