@@ -34,7 +34,7 @@ _Note that some of these offer preferences as to the type of bike being ridden a
 
 ![](/img/gpx/tarmacs.png)
 
-## Tarmacs ##
+## Bikerouter ##
 
 ![](/img/gpx/bikerouter.png)
 
