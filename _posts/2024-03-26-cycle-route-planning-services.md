@@ -12,6 +12,8 @@ I'm a bit of a map geek and love to spend time reading them and plotting routes.
 
 Without judgement and just for comparison, below are a collection of routes offered up by various services for a short 'Kentmere to Coniston' ride. 
 
+_Note that some of these offer preferences as to the type of bike being ridden and I've left this as whatever the default is._ 
+
 ## Ordnance Survey ##
 
 ![](/img/gpx/os.png)
@@ -31,4 +33,8 @@ Without judgement and just for comparison, below are a collection of routes offe
 ## Tarmacs ##
 
 ![](/img/gpx/tarmacs.png)
+
+## Tarmacs ##
+
+![](/img/gpx/bikerouter.png)
 
