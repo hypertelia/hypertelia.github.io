@@ -5,6 +5,7 @@ date: 2024-01-16 10:37
 category: 
 author: 
 tags: []
+image: /img/strathpuffer/04.jpg
 summary: A report on riding the 2024 Strathpuffer 24 hour race solo
 ---
 
