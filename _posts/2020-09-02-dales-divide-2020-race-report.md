@@ -5,6 +5,7 @@ date: 2020-09-02 20:02
 category: [cycling,race,ultra-endurance,bikepacking]
 author: 
 tags: [review]
+image: /img/dd/dd2020-23.jpg
 summary:
 description: Report of the 2020 Dales Divide Bikepacking Race
 ---
