@@ -4,7 +4,7 @@ title: Misery Training
 date: 2023-03-28 13:14
 category: 
 author: Pete Aylward
-image: /misery/misery01.jpg
+image: /img/misery/misery01.jpg
 tags: []
 summary: On making things difficult for yourself
 ---
