@@ -6,6 +6,7 @@ category: [cycling,race,ultra-endurance]
 author: 
 tags: [review]
 summary: 
+image: /img/racearoundrwanda-bike2.jpg
 description: Details of the bike used for the Race Around Rwanda, a self-supported single stage bikepacking event
 ---
 

@@ -5,6 +5,7 @@ date: 2023-05-30 16:03
 category: 
 author: 
 tags: []
+image: /img/ht550/05.jpg
 summary: Scratching after day one of the HT550
 ---
 
